@@ -17,81 +17,124 @@ The first verse is to mark the beginning of the wedding ceremony. It is a blessi
 >
 > प्रजयौनौ स्वस्तकौ विस्वमायुर्व्यऽशनुताम् ॥
 
-O Lord ! May you bring together this newly married couple in the same manner as a pair of `Chakravaka` birds. `Chakravaka` is a duck. In India we call it a `Brahmini` duck, which means a sacred duck.  
+O Lord ! May you bring together this newly married couple in the same manner as a pair of `Chakravaka` birds. `Chakravaka` is a duck. In India, we call it a `Brahmini` duck, which means a sacred duck.  
 
 Let them enjoy marital bliss, and along with their kids, live a full life. 
 
 ---
 
-The second verse is about the bride’s expression of her love -- she and the groom are two halves of the “entirety”. Marriage in itself is a universe:.
+The second verse is about the bride’s expression love. This is how she views this union. She believes that marriage in itself is a universe. She and the groom are two halves of the “entirety”.
 
 >धैरहं पृथिवीत्वम् ।
+>
 >रेतोऽहं रेतोभृत्त्वम् ।
+>
 >मनोऽहमस्मि वाक्त्वम् ।
+>
 >सामाहमस्मि ऋकृत्वम् ।
+>
 >सा मां अनुव्रता भव ।
 
 
 I am the sky and you are the earth. 
-I am the giver of energy and you are the receiver. 
-I am the mind and you are the word. 
-I am Saama - the music,  and you are the Song - Rrik. . You and I follow each other.
 
+I radiate life energy and you hold it to manifest things. 
+
+I am the mind and you are the word. 
+
+I am `Saama` — the music, and you are the Song — `Rrik`. 
+
+You and I follow each other.
+
+----
 
 In the third verse, the bride wishes for a long union. She trusts the groom for his foresight ..
 
-तच्चक्षु॑र्दे॒वहि॑तं शु॒क्रमु॒च्चर॑त् 1
-पश्ये॑म श॒रद॑: श॒तं, जीवे॑म श॒रद॑: श॒तम् ॥
+> तच्चक्षु॑र्दे॒वहि॑तं शु॒क्रमु॒च्चर॑त् |
+>
+> पश्ये॑म श॒रद॑: श॒तं, जीवे॑म श॒रद॑: श॒तम् ॥
 
 
-Your auspicious foresight is bright and rising. May we behold it for a hundred winters; may we live a hundred years. (RV 7.66.16 Vasishtha)
+Your auspicious foresight (in this union) is bright and rising. 
+
+May we see it together for a hundred winters; may we live a hundred years. (RV 7.66.16 Vasishtha)
+
+----
 
 In the fourth verse, the groom commits to be a caring partner to the bride.
 
-धर्मेच अर्थेच कामेच इमां नातिचरामि ।
-धर्मेच अर्थेच कामेच इमं नातिचरामि ॥
+> धर्मेच अर्थेच कामेच इमां नातिचरामि ।
+>
+> धर्मेच अर्थेच कामेच इमं नातिचरामि ॥
 
-In my duty, in my financial commitments, in my needs, I will consult you, will take your consent and act upon. 
+In my duty, in my financial commitments, in my needs, I will consult you. 
 
+I will take your consent and act upon. 
+
+----
 
 In the fifth verse, the groom now thanks the Gods for bringing the bride into his life.
 
-गृभ्णामि ते सौभगत्वाय हस्तं मया पत्या जरदष्टिर्यथासः ।
-भगो अर्यमा सविता पुरंधिर्मह्यं त्वादुर्गार्हपत्याय देवाः ॥
+> गृभ्णामि ते सौभगत्वाय हस्तं मया पत्या जरदष्टिर्यथासः ।
+>
+> भगो अर्यमा सविता पुरंधिर्मह्यं त्वादुर्गार्हपत्याय देवाः ॥
 
-“I take your hand for wellbeing so that together we may attain old age in happiness. The Sovereign Cosmic Principles; Enjoyment [Bhaga], Aspiration [Aryaman], Creativity [Savitar] and Completeness [Purandhri] have united us for the performance of our duties as householders.” (RV 10.85.36)
+I take your hand for wellbeing so that together we may attain old age in happiness. 
+
+The Sovereign Cosmic Principles; Enjoyment [Bhaga], Aspiration [Aryaman], Creativity [Savitar] and Completeness [Purandhri] have united us for the performance of our duties as householders. 
+
+(RV 10.85.36)
+
+----
 
 
 In the sixth verse, they wish to never lose each other. Marriage is the ultimate manifestation of friendship.
 
-सखा सप्तपदा भव ।
-सखायौ सप्तपदा बभूव ।
-सख्यं ते गमेयम् ।
-सख्यात् ते मायोषम् ।
-सख्यान्मे मयोष्ठाः ।
+> सखा सप्तपदा भव ।
+>
+> सखायौ सप्तपदा बभूव ।
+> 
+> सख्यं ते गमेयम् ।
+> 
+> सख्यात् ते मायोषम् ।
+> 
+> सख्यान्मे मयोष्ठाः ।
 
 
-Having taken seven steps with me , 
+Having taken seven steps with me,
+
 Please accept my friendship. 
+
 We are taking seven steps together, so let me cherish our friendship.
+
 Don’t let me ever stay away from friendship.
 
+----
 
 The last verse is one of the most sacred verses for ‘coming-together’ of two souls in love.
 
-ॐ सह नाववतु ।
-सह नौ भुनक्तु ।
-सह वीर्यं करवावहै ।
-तेजस्वि नावधीतमस्तु मा विद्विषावहै ।
-ॐ शान्तिः शान्तिः शान्तिः ॥
+> ॐ सह नाववतु ।
+>
+> सह नौ भुनक्तु ।
+>
+> सह वीर्यं करवावहै ।
+>
+> तेजस्वि नावधीतमस्तु मा विद्विषावहै ।
+>
+> ॐ शान्तिः शान्तिः शान्तिः ॥
 
 
-May we two Move Together 
-May we two Relish  Together 
-May we perform with Vigor , 
+May we two move together 
+
+May we two relish together 
+
+May we perform with Vigor, 
+
 May we never indulge in disputes.
+
 Peace and peace to all
 
+----
 
 
 

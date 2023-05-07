@@ -3,8 +3,9 @@ Marriage or `पाणिग्रहण` (`Paanigrahana` — as we call it in S
 
 ### Weddings are the gateway to the family.
 In every culture, family is seen as the cradle to spirituality. Family is the place to hone fine emotions of love, care, respect and sacrifice that define the fabric of spirituality.  And in almost every culture, weddings are the gateway to the “family”. Now there are different ways to conduct the wedding ceremonies, but more importantly it’s a commitment to look out for each other. Even if there is no ceremony, the spiritual sense is to stand by each other through thick and thin — holding each other’s hand — `Paanigrahana`.
+
 ### `Vaidik` Wedding ceremony
-When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at Vedic scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to marriage. It describes a wedding through an example — the marriage of Soma and Surya — two mythical characters. It is the first fully documented wedding - a wedding registered in `Rig Veda` itself. 
+When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at `Vedic` scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to the idea of wedding. It describes a wedding through an example — the marriage of Soma and Surya — two mythical characters. It is the first fully documented wedding - a wedding registered in `Rig Veda` itself. 
 
 These verses from those primordial texts, bring the best of `Sanskrit` poetry in expressing the essence of a spiritual union. And they seem relevant even today. 
 

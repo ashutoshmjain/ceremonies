@@ -7,7 +7,7 @@ In every culture, family is seen as the cradle to spirituality. Family is the pl
 There are different ways to conduct the wedding ceremonies — a `Vaikik` ceremony is one of them, but more importantly it’s a commitment to look out for each other. Even if there is no ceremony, the spiritual sense is to stand by each other through thick and thin — holding each other’s hand — `Paanigrahana`.
 
 ### `Vaidik` Wedding ceremony
-When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at `Vedic` scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to the ritual of wedding — chapter 85 of tenth book (`Sookta`). It describes a wedding through an example — the wedding of Soma and Surya — two mythical characters. It is worth reading even without a ceremony — purely for its poetry. In a way, this divine wedding was the first fully documented wedding — a wedding registered in `Rig Veda` itself. 
+When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at `Vedic` scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to the ritual of wedding — chapter 85 of tenth book (`Sookta`). The [47 verses](https://www.wisdomlib.org/hinduism/book/rig-veda-english-translation/d/doc839461.html) of this chapter describes a wedding through an example — the wedding of Soma and Surya — two mythical characters. It is worth reading even without a ceremony — purely for its superior poetry. In a way, this divine wedding was the first fully documented wedding — a wedding registered in `Rig Veda` itself. 
 
 These verses from those primordial texts, bring the best of `Sanskrit` poetry in expressing the essence of a spiritual union. And they seem relevant even today. 
 
@@ -81,9 +81,9 @@ In the fifth verse, the groom now thanks the Gods for bringing the bride into hi
 >
 > भगो अर्यमा सविता पुरंधिर्मह्यं त्वादुर्गार्हपत्याय देवाः ॥
 
-I take your hand for wellbeing so that together we may attain old age in happiness. 
+I take your hand for good fortune that we attain old age with me being your partner.
 
-The Sovereign Cosmic Principles; Enjoyment [Bhaga], Aspiration [Aryaman], Creativity [Savitar] and Completeness [Purandhri] have united us for the performance of our duties as householders. 
+The Enjoyment [Bhaga], Aspiration [Aryaman], Creativity [Savitar] and Completeness [Purandhri] have united us for the performance of our duties as householders. 
 
 (RV 10.85.36)
 

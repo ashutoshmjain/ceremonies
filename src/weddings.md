@@ -1,17 +1,19 @@
 ## Weddings are Spiritual.
-Marriage or `पाणिग्रहण` (`Paanigrahana` — as we call it in Sanskrit) is one of the oldest and sacred tradition in almost all the cultures. Since it is in all cultures, it is obviously beyond religions or nation states. `Paanigrahna` simply means two partners accepting or holding each other's hand — irrespective of their orientations or affiliations. Since it is a universal tradition, it is by definition spiritual. Spirituality means something that is present beyond the man made barriers — something omnipresent. In a way, weddings are by definition, spiritual events by virtue of their being omnipresent across cultures.
+Marriage or `पाणिग्रहण` (`Paanigrahana` — as we call it in Sanskrit) is one of the oldest and sacred tradition in almost all the cultures. Since it is in all cultures, it is obviously beyond religions or nation states. `Paanigrahna` simply means two partners accepting or holding each other's hand — irrespective of their orientations or affiliations. Since it is a universal tradition, it is by definition spiritual. Spirituality means something that is present beyond the man made barriers — something omnipresent across cultures. In a way, weddings are by definition, spiritual events. 
 
 ### Weddings are the gateway to the family.
-In every culture, family is seen as the cradle to spirituality. Family is the place to hone fine emotions of love, care, respect and sacrifice that define the fabric of spirituality.  And in almost every culture, weddings are the gateway to the “family”. Now there are different ways to conduct the wedding ceremonies, but more importantly it’s a commitment to look out for each other. Even if there is no ceremony, the spiritual sense is to stand by each other through thick and thin — holding each other’s hand — `Paanigrahana`.
+In every culture, family is seen as the cradle to spirituality. Family is the place to hone fine emotions of love, care, respect and sacrifice that define the fabric of spirituality.  And in almost every culture, weddings are the "gateway" to the “family”. They are the founding stones of marriages. Wedding is the event that culminates into a lifelong union called "marriage". 
+
+There are different ways to conduct the wedding ceremonies — a `Vaikik` ceremony is one of them, but more importantly it’s a commitment to look out for each other. Even if there is no ceremony, the spiritual sense is to stand by each other through thick and thin — holding each other’s hand — `Paanigrahana`.
 
 ### `Vaidik` Wedding ceremony
-When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at `Vedic` scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to the idea of wedding. It describes a wedding through an example — the marriage of Soma and Surya — two mythical characters. It is the first fully documented wedding - a wedding registered in `Rig Veda` itself. 
+When we think about a spiritual way to conduct a wedding ceremony, The obvious choice is to look at `Vedic` scriptures. Being the oldest written text, they are from a time before these barriers (of religion, race, color or nations) even came into being. They, by default, represent spirituality. `Rig Veda` — the oldest of four Vedas — has a complete chapter dedicated to the ritual of wedding — chapter 85 of tenth book (`Sookta`). It describes a wedding through an example — the wedding of Soma and Surya — two mythical characters. It is worth reading even without a ceremony — purely for its poetry. In a way, this divine wedding was the first fully documented wedding — a wedding registered in `Rig Veda` itself. 
 
 These verses from those primordial texts, bring the best of `Sanskrit` poetry in expressing the essence of a spiritual union. And they seem relevant even today. 
 
 ---
 
-The first verse is to mark the beginning of the wedding ceremony. It is a blessing from all those present for this beautiful union.
+The first verse is from  is to mark the beginning of the wedding ceremony. It is a blessing from all those present for this beautiful union.
 
 > इहेमाविन्द्र सं नुद चक्रवाकेव दम्पती ।
 >
